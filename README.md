@@ -17,7 +17,8 @@ I wrote many of comments which are unique language.
 I reported to her on instagram.
 I reported to her with emphasis, of that I know who Satoshi Nakamoto is.
 
-On October 3 2023, I sent letters to her and her collegues. The letters had unique language. From letters, there is words expilicily mean, that Nanjou Yoshino is Satoshi Nakamoto. On them, there is proof previous and new.
+On October 3 2023, I sent letters which to is signed with cms without nodetach to her and her collegues. The letters had unique language. From letters, there is words expilicily mean, that Nanjou Yoshino is Satoshi Nakamoto. On them, there is proof previous and new.
 After, I report on websites. I used residential VPNs which service in Japan, South Korea, Israel, Ukraine, and Russia.
+I spam the message, that Nanjou Yoshino is Satoshi Nakamoto. All contains contact information encoded in openSSL certificates.
 
 I will keep doing. If Nanjou Yoshino will contact me, I will stop.
